@@ -1,2 +1,5 @@
 # hello-word
-Do it yourself
+Do it yourself !!
+you can do it yourself and it is good for you
+just do it
+is it
